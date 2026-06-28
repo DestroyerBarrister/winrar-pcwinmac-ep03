@@ -1,4 +1,4 @@
-# 
+# Officiel WinRAR modules complémentaires pour Mac OS | Exclusif WinRAR modules complémentaires pour PC Windows. Avec gestion des cookies et support multi-formats — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
